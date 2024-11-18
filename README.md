@@ -1,3 +1,1 @@
-hey guys
-he/licopter
-englandish
+stupid
